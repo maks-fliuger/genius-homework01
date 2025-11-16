@@ -1,1 +1,1 @@
-# genius-homework01
+# beauty-zone-project
